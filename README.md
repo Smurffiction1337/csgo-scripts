@@ -1,4 +1,4 @@
-![Title Artwork](https://i.imgur.com/3kvYoqp.png)
+![Title Artwork](https://i.imgur.com/DXFxpxo.jpg)
 
 
 # Launch options
